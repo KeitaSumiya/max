@@ -1,4 +1,4 @@
-http://qiita.com/keitasumiya/d8c67b36031c5d7c0094
+http://qiita.com/keitasumiya/items/d8c67b36031c5d7c0094
 
 
 
